@@ -143,5 +143,5 @@ Sourabh Dey
 
 GitHub: @sourabh200401
 
-Email: your-email@example.com
+Email: sourabhdey981@gmail.com
 
